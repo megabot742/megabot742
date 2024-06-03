@@ -4,7 +4,7 @@
 - 💞️ I am in need of cooperation based on passion
 - 📫 How to reach me: phuocloc742@gmail.com
 - 😄 Pronouns: He/him is okay
-- ⚡ Fun fact: I like video games
+- ⚡ Type of person: "Work hard, play hard"
 
 <!---
 megabot742/megabot742 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
