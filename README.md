@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Unity and Unreal Engine
 - 💞️ I am a person who has passion for video games.
 - 📫 How to reach me: phuocloc742@gmail.com
-- 😄 Pronouns: He/him is okay
+- 😄 Language: English/Vietnamese
 - ⚡ Type of person: "Work hard, play hard"
 
 <!---
