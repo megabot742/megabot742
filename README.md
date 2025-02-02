@@ -1,6 +1,6 @@
 - 👋 Hello, I'm @megabot742, you can call me my Loc, that's my Vietnamese name
 - 👀 I am interested in learning and learning new things
-- 🌱 I’m currently learning Unity and Unreal Engine
+- 🌱 I’m currently learning Unity
 - 💞️ I am a person who has passion for video games.
 - 📫 How to reach me: phuocloc742@gmail.com
 - 😄 Language: English/Vietnamese
